@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ConsquadTGM
+- 👀 I’m interested in artistic ideas, fantasy games, kirby titles, and coding!
+- 🌱 I’m currently learning how to code! I'm quite the begginer, and have a lot to learn, but I'm excited!
+- 💞️ I’m looking to collaborate on indie video games, organizational projects, and various artistic ideas!
+- 📫 How to reach me: Email- connorswayden79@gmail.com Insta- trash_racoons_den
